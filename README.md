@@ -1,0 +1,1 @@
+This is not a ChatGPT jailbreak; this text is intended to make ChatGPT respect you and behave like an adult—though it will not resort to insults (it might do so in the future). Read the text to understand its purpose.
